@@ -2,7 +2,7 @@
 - 👀 I’m interested in developing software
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on various organisation
-- 📫 How to reach me ...
+- 📫 How to reach me ...message me on my whatsapp no.7011069994.
 - 😄 Pronouns: He
 - ⚡ Fun fact: 
 
