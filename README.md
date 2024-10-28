@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @abhishek-123-code
+- 👋 Hi, I’m @abhishek pal
 - 👀 I’m interested in developing software
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on various organisation
